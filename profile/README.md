@@ -27,7 +27,7 @@ Dieser Bereich ist für das nahtlose Hochladen und Verwalten von relevanten Date
 
 ## Mitmachen
 
-Falls du Interesse hast, Teil unserer Community zu werden oder an unseren Projekten mitzuwirken, besuche unseren [YouTube-Kanal](https://www.youtube.com) und trete unserem [Discord-Server](https://discord.com) bei.
+Falls du Interesse hast, Teil unserer Community zu werden oder an unseren Projekten mitzuwirken, besuche unseren [YouTube-Kanal](https://youtube.com/@riseofthefarmers-u1g?si=SvFQ94jJDG3EIEwQ) und trete unserem [Discord-Server](https://discord.gg/4HjbDzudjG) bei.
 
 Gemeinsam schaffen wir eine noch spannendere und unterhaltsamere Welt im Landwirtschaftssimulator!
 
